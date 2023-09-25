@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Neel Madhav Kashyap</h1>
-- 📫 How to reach me **neelmadhav3@gmail.com**
+- 📫 How to reach me **neelmadhav33@gmail.com**
 
 - ⚡ Fun fact **I am suprisingly good at cricket**
 
